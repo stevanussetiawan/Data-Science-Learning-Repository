@@ -1,2 +1,2 @@
-
+- https://www.linkedin.com/posts/sweta-m-194b1616b_data-science-handwritten-notes-activity-7120537436715200513-g398/
 - https://machinelearningprojects.net/handwritten-data-science-notes/
