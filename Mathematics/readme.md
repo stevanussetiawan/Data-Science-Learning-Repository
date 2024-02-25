@@ -1,2 +1,3 @@
-- https://www.youtube.com/watch?v=Ixl3nykKG9M
+- https://www.youtube.com/watch?v=Ixl3nykKG9M (such a simple and great tutorial)
 - https://www.youtube.com/@compstatmunich9067/playlists
+- https://www.youtube.com/@breathemath4757/playlists
